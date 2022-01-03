@@ -1,1 +1,1 @@
-https://Maxdimbovskii.github.io/rsschool-cv/cvgit 
+https://Maxdimbovskii.github.io/rsschool-cv/cv
